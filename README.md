@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @closedeed
-- 👀 I’m interested in ...HTML, CSS, JS, Python; Wordpress, Figma, Illustraor, Photoshop: Design.
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ... frelance
+- 👀 I’m not interested in technology
+- 🌱 I’m currently learning ... how to be spiritual happy
+- 💞️ I’m looking to collaborate on ... how to make people really happy
 - 📫 How to reach me: graham_ru@rambler.ru, https://t.me/JVSD060520,
 
 <!---
