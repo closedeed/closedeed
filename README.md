@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @closedeed
-- 👀 I’m not interested in technology
+- 👀 Now I’m not interested in technology
 - 🌱 I’m currently learning ... how to be spiritual happy
 - 💞️ I’m looking to collaborate on ... how to make people really happy
 - 📫 How to reach me: graham_ru@rambler.ru, https://t.me/JVSD060520,
